@@ -2,4 +2,4 @@
 - 👀 I’m interested in Java for gaming stuff.
 - 🌱 I’m currently learning Java. I also am interested in learning C++, C# and Python.
 - 💞️ I’m looking to collaborate on not sure what.
-- 📫 How to reach me 801-995-5646, or friend me on steam! My steam tag is Ti-84 Calculator Plus CE. (May change in the future). I also got a discord, my username is Ti-84 Calculator Plus CE and my tag is #5202. (Sun Punks#5202)
+- 📫 How to reach me 801-995-5646, or friend me on steam! My steam tag is Ti-84 Calculator Plus CE. (May change in the future). I also got a discord, my username is Ti-84 Calculator Plus CE and my tag is #5202. (Ojii Ojii#5202)
